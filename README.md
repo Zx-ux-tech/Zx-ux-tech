@@ -3,6 +3,7 @@
 - Está frio e esqueci mimha blusa
 - chegando em casa começa a maratona de One Piece
 - Quero ir em bora e o sinal não toca
+- essa não é minha conta oficial do github, criei apenas para a aula
 - Esse sou eu
 - Amador da TI 👨‍💻🌎
 - ![Descrição da Imagem](https://github.com/Zx-ux-tech/Zx-ux-tech/blob/main/gif%202.gif?raw=true)
